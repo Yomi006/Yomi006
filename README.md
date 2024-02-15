@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Cody
+- 👀 I’m interested in Chiropractic 
+- 🌱 I’m currently learning art 
+- 😄 Pronouns: Coco, Cody, Yomi
+- ⚡ Fun fact: I like cows 🐄😻
